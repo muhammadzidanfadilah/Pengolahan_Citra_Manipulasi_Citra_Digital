@@ -1,12 +1,11 @@
 # Pengolahan_Citra_Manipulasi_Citra_Digital
 
 # File pdf di bawah ini
-[312210277_Muhammad Zidan Fadillah_TI.22.A.2_Pengolahan Citra_Manipulasi Citra Digital,.pdf](https://github.com/muhammadzidanfadilah/Pengolahan_Citra_Manipulasi_Citra_Digital/files/15105610/312210277_Muhammad.Zidan.Fadillah_TI.22.A.2_Pengolahan.Citra_Manipulasi.Citra.Digital.pdf)
+
+[312210277_Muhammad Zidan Fadillah_TI.22.A.2_Pengolahan Citra_Manipulasi Citra Digital-.pdf](https://github.com/muhammadzidanfadilah/Pengolahan_Citra_Manipulasi_Citra_Digital/files/15106512/312210277_Muhammad.Zidan.Fadillah_TI.22.A.2_Pengolahan.Citra_Manipulasi.Citra.Digital-.pdf)
 
 
-
-
-| Link Pdf: | https://drive.google.com/file/d/18s8exywiFfiHOlrAj3f1b2o7rqHv29O8/view?usp=sharing |
+| Link Pdf: | https://drive.google.com/file/d/1CUhTfE4nssRl-x9E9J5aklCD4nANzC_p/view?usp=sharing |
 | --- | --- |
 
 # Modul
